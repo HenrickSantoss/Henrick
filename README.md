@@ -11,6 +11,8 @@ Olá, me chamo Henrick 👋
 
 
 
-![](https://github.com/user-attachments/assets/7de7a0e1-20e0-4edd-be86-b50b9810ceef)
+
+![](https://github.com/user-attachments/assets/9a03cb28-9967-44ea-8af3-2020283d0080)
+
 
 
