@@ -10,8 +10,5 @@ Olá, me chamo Henrick 👋
    Email: santos.henrick@escola.pr.gov.br
 
 
-
-
-
-   ![](https://github.com/user-attachments/assets/4fede2bb-0fc1-49be-a845-e2f57ff520d1)
+![](https://github.com/user-attachments/assets/884e00c8-a8b1-4385-bef9-3d554ac95680)
 
